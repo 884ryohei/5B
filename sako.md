@@ -1,1 +1,2 @@
- #sakotakahashi
+- サービス、IT　最終
+- 外食、不動産、IT　選考中
